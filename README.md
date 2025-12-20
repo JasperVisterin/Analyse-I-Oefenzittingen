@@ -18,6 +18,6 @@ Dit was het dan. Mocht je verder nog wat studiemotivatie zoeken, ik zal in de bl
 
 Bij deze wens ik jullie veel succes en volharding in de blok en tijdens de examens.
 
-<img width="275" height="304" alt="afbeelding" src="https://github.com/user-attachments/assets/ac0a7c8b-35ae-4467-9c07-08f4d7b0e564" />
+<img width="276" height="304" alt="afbeelding" src="https://github.com/user-attachments/assets/ac0a7c8b-35ae-4467-9c07-08f4d7b0e564" />
 
 
