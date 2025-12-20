@@ -17,3 +17,7 @@ Verder wil ik jullie graag herinneren aan mijn kat. Herinner elkaar voor het exa
 Dit was het dan. Mocht je verder nog wat studiemotivatie zoeken, ik zal in de blok ook posten op mijn instagram-pagina IngeniumBlog, maar zit alsjeblieft nu niet de hele tijd instagram te checken :)).  
 
 Bij deze wens ik jullie veel succes en volharding in de blok en tijdens de examens.
+
+<img width="824" height="913" alt="afbeelding" src="https://github.com/user-attachments/assets/ac0a7c8b-35ae-4467-9c07-08f4d7b0e564" />
+
+
