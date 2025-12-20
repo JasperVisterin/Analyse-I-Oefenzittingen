@@ -1,5 +1,5 @@
 # Analyse I Oefenzittingen 
-## Description
+## Tips en aanmoediging voor de blok
 Dag beste studenten analyse I,
 
 Bij deze wil ik jullie allemaal bedanken voor jullie inzet tijdens de oefenzittingen. Het maakte de oefenzittingen heel leuk om te geven. 
